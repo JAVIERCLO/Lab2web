@@ -1,0 +1,2 @@
+# For glory: The story of a rookie who wants it all
+Step into the car as you will be a rookie F1 driver on a journey to become world champion. Choose your team, race against other drivers, and make your way into history as every decision you make shapes your career.
